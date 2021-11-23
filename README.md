@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ... life
 - 💬 Ask me about ... health 
-- 📫 How to reach me: ... https://www.facebook.com/Nijakisan666
+- 📫 How to reach me: ... https://www.facebook.com/Nijakisan
 - 😄 Pronouns: ... Pornos ? haha
 - ⚡ Fun fact: ... i'm noob ;)
 -->
